@@ -1,1 +1,1 @@
-We are one
+A house divided against itself cannot stand
